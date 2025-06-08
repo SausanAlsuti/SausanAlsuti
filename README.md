@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sausanalsuti@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/sausan-al-suti-07a305212](www.linkedin.com/in/sausan-al-suti-07a305212)
+- 📄 Know about my experiences [https://www.linkedin.com/in/sausan-al-suti](https://www.linkedin.com/in/sausan-al-suti)
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
